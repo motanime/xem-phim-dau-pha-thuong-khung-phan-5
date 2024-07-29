@@ -11,6 +11,10 @@ Xem Phim Đấu Phá Thương Khung Phần 5 Tập 106 + Tập 107 + Tập 108 V
 
 ============================
 
+<b>Nội Dung:<b> Sau hẹn ước 3 năm, Tiêu Viêm cuối cùng cũng gặp được Huân Nhi ở học viện Già Nam, sau đó hắn kết giao nhiều bạn bè, thành lập Bàn Môn; vì tiếp tục nâng cao thực lực để lên Vân Lam Tông lần 3 báo thù cho cha, hắn mạo hiểm đi vào Thiên Phần luyện Khí Tháp thôn phệ Vẫn Lạc Tâm Viêm...
+
+============================
+
 <b>[Danh Sách Tập]<b>
 
 《 <b><a href="https://hhchina.app/thong-tin-phim/dau-pha-thuong-khung-phan-5-gia-nam-hoc-vien.html" style=""> Tập 	106	</a></b>》	</br>
